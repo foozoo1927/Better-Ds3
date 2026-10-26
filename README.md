@@ -214,4 +214,4 @@ Better DS3 is available as a full free version, including all features and updat
 Enhance your gaming experience today with Better DS3 — the ultimate tool for connecting your PS3 controller to Windows. **Download now!**
 
 ---
-**Last updated:** 2026-10-26 16:30:30 UTC
+**Last updated:** 2026-10-26 21:22:03 UTC
